@@ -1,1 +1,0 @@
-# jdhare.github.io
